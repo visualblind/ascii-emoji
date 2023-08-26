@@ -1,4 +1,25 @@
 ```
+╭∩╮(･◡･)╭∩╮
+Middle Finger 1
+
+凸(-_-)凸
+Middle Finger 2
+
+(⌐■_■)
+Nerd Glasses
+
+ಠ_ರೃ
+Disapproving Monocle
+
+ᕙ(⇀‸↼‶)ᕗ
+Frustrated Fists
+
+➤ᕙ (⇀‸↼ ‶) ᕗ➤
+Frustrated Fists Larger
+
+(¬_¬)
+Bored
+
 ʘ‿ʘ
 innocent face 
 
@@ -337,6 +358,33 @@ peepers
 
 {ಠʖಠ}
 judgemental
+
+◌⑅⃝ℋ⍲ᵖᴘᵞ ℬⁱᖇᐪમᵈ੨ყ♡ෆ ͙⁎♡⑅⃝◌
+Happy Birthday
+
+[̲̅$̲̅(̲̅5̲̅)̲̅$̲̅]
+$5 Dollar Bill
+
+•*´¨`*•.¸¸.•*´¨`*•.¸¸.•*´¨`*•.¸¸.•*´¨`*•.¸¸.•
+Fancy Wave
+
+♪♫•*¨*•.¸¸❤¸¸.•*¨*•♫♪
+Fancy Wave
+
+˙·٠•●♥ Text ♥●•٠·˙
+Text Wave
+
+•♥•♥•♥•♥•♥ Text ♥•♥•♥•♥•♥•
+Text Wave
+
+███۞███████ ]▄▄▄▄▄▄▄▄▄▄▄▄▃
+▂▄▅█████████▅▄▃▂
+I███████████████████].
+◥⊙▲⊙▲⊙▲⊙▲⊙▲⊙▲⊙◤...
+Tank
+
+₿
+Bitcoin
 ```
 
 Note:
