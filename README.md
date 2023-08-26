@@ -1,24 +1,69 @@
 ```
 ╭∩╮(･◡･)╭∩╮
-Middle Finger 1
+middle finger
 
 凸(-_-)凸
-Middle Finger 2
+middle finger
 
 (⌐■_■)
-Nerd Glasses
+glasses
 
 ಠ_ರೃ
-Disapproving Monocle
+monocle
 
 ᕙ(⇀‸↼‶)ᕗ
-Frustrated Fists
+frustrated
 
 ➤ᕙ (⇀‸↼ ‶) ᕗ➤
-Frustrated Fists Larger
+frustrated
 
 (¬_¬)
-Bored
+bored
+
+ᕙ(⇀‸↼‵‵)ᕗ
+flexing
+
+(ง •̀_•́)ง
+flexing
+
+ᕦ(ò_óˇ)ᕤ
+flexing
+
+୧(๑•̀ㅁ•́๑)૭✧
+flexing
+
+ᕦ(･ㅂ･)ᕤ
+flexing
+
+ᕙ(⇀‸↼‵‵)ᕗ
+flexing
+
+(•̀ᴗ•́)و ̑̑
+flexing
+
+(ง •̀_•́)ง
+flexing
+
+(ง˙o˙)ว
+flexing
+
+(๑•̀ㅂ•́)و✧
+flexing
+
+ᕕ( ᐛ )ᕗ
+running
+
+(t⌓t)
+crying
+
+(〒︿〒)
+crying
+
+(个_个)
+crying
+
+(ㄒoㄒ)
+crying
 
 ʘ‿ʘ
 innocent face 
@@ -345,7 +390,7 @@ taking a dump / straining
 dab
 
 ~(^-^)~
-Wave Dance
+dance
 
 \(ᵔᵕᵔ)/
 Happy Hug
@@ -360,31 +405,31 @@ peepers
 judgemental
 
 ◌⑅⃝ℋ⍲ᵖᴘᵞ ℬⁱᖇᐪમᵈ੨ყ♡ෆ ͙⁎♡⑅⃝◌
-Happy Birthday
+happy birthday
 
 [̲̅$̲̅(̲̅5̲̅)̲̅$̲̅]
-$5 Dollar Bill
+$5 dollars
 
 •*´¨`*•.¸¸.•*´¨`*•.¸¸.•*´¨`*•.¸¸.•*´¨`*•.¸¸.•
-Fancy Wave
+wave
 
 ♪♫•*¨*•.¸¸❤¸¸.•*¨*•♫♪
-Fancy Wave
+wave
 
 ˙·٠•●♥ Text ♥●•٠·˙
-Text Wave
+wave
 
 •♥•♥•♥•♥•♥ Text ♥•♥•♥•♥•♥•
-Text Wave
+wave
 
 ███۞███████ ]▄▄▄▄▄▄▄▄▄▄▄▄▃
 ▂▄▅█████████▅▄▃▂
 I███████████████████].
 ◥⊙▲⊙▲⊙▲⊙▲⊙▲⊙▲⊙◤...
-Tank
+tank
 
 ₿
-Bitcoin
+bitcoin
 ```
 
 Note:
